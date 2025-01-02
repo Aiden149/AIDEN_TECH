@@ -104,7 +104,7 @@
 CONTACT DEVELOPER ON WHATSAPP 
 
 <a href="https://wa.me/255750363194" target="_blank">
-    <img alt="whatsapp Group" src="https://img.shields.io/badge/boniphace tech contact -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+    <img alt="whatsapp Group" src="https://img.shields.io/badge/AIDEN_TECH contact -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 
   
@@ -115,7 +115,7 @@ CONTACT DEVELOPER ON WHATSAPP
 
 ## License
 
-The WhatsApp Bot BONIPHACE-MD is released under the [MIT License](https://opensource.org/licenses/MIT).
+The WhatsApp Bot AIDEN_TECH is released under the [MIT License](https://opensource.org/licenses/MIT).
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 🌟 THANK YOU FOR CHOOSING AIDEN_TECH 🌟
