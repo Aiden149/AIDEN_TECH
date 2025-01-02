@@ -1,14 +1,14 @@
 
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𓅓+𝐵𝑂𝑁𝐼𝑃𝐻𝐴𝐶𝐸+𝐼𝑆+𝑀𝑌+𝑂𝑊𝑁𝐸𝑅+𓅓)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𓅓+AIDEN_TECH+𝐼𝑆+𝑀𝑌+𝑂𝑊𝑁𝐸𝑅+𓅓)](https://git.io/typing-svg)
 
 </p>
- <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+ <img src="https://files.catbox.moe/sb8niw.jpg" height="90" width="100%">
 
- <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝐁𝐎𝐍𝐈𝐏𝐇𝐀𝐂𝐄+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;Ibrahim+Adams+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
+ <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+AIDEN_TECH+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+AIDEN_TECH+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+AIDEN.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒AIDEN_TECH࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;Fredrick+Danny+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
  <a href="https://files.catbox.moe/63oi9w.jpeg">
- <img alt="BONIPHACE-MD" height="300" src="https://files.catbox.moe/63oi9w.jpeg">
+ <img alt="AIDEN_TECH" height="300" src="https://files.catbox.moe/6vhkln.jpg">
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝐁𝐎𝐍𝐈𝐏𝐇𝐀𝐂𝐄+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+AIDEN+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+AIDEN_TECH+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+FREDRICK.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒AIDEN_TECH࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹)](https://git.io/typing-svg)
 
 
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
@@ -18,15 +18,15 @@
 
 </p>
   <p align="center">
-<a href="https://github.com/boniphace478/followers"><img title="Followers" src="https://img.shields.io/github/followers/boniphace478?color=blue&style=flat-square"></a>
-<a href="https://github.com/boniphace478/BONIPHACE-MD/stargazers/"><img title="STARS" src="https://img.shields.io/github/stars/boniphace478/boniphace-md?&style=social"></a>
-<a href="https://github.com/boniphace478/boniphace-md/network/members"><img title="Forks" src="https://img.shields.io/github/forks/boniphace478/boniphace-md?style=social"></a>
-<a href="https://github.com/boniphace478/boniphace-md/watchers"><img title="Watching" src="https://img.shields.io/github/watchers/boniphace478/boniphace-md?label=Watching&style=social"></a>
-<a href="https://github.com/boniphace478/BONIPHACE-MD/"><img title="Size" src="https://img.shields.io/github/repo-size/boniphace478/BONIPHACE-MD?style=flat-square&color=green"></a>
-<a href="https://github.com/boniphace478/BONIPHACE-MD/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
+<a href="/https://github.com/Aiden149/AIDEN_TECH/followers"><img title="Followers" src="https://img.shields.io/github/followers/Aiden149?color=blue&style=flat-square"></a>
+<a href="https://github.com/Aiden149/AIDEN_TECH/stargazers/"><img title="STARS" src="https://img.shields.io/github/stars/Aiden149/AIDEN_TECH?&style=social"></a>
+<a href="https://github.com/Aiden149/AIDEN_TECH/network/members"><img title="Forks" src="https://img.shields.io/github/forks/Aiden149/AIDEN_TECH?style=social"></a>
+<a href="https://github.com/Aiden149/AIDEN_TECH/watchers"><img title="Watching" src="https://img.shields.io/github/watchers/Aiden149/AIDEN_TECH?label=Watching&style=social"></a>
+<a href="https://github.com/Aiden149/AIDEN_TECH/"><img title="Size" src="https://img.shields.io/github/repo-size/Aiden149/AIDEN_TECH?style=flat-square&color=green"></a>
+<a href="https://github.com/Aiden149/AIDEN_TECH/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
 </p>
 </p>
-<p align="center"><img src="https://profile-counter.glitch.me/{boniphace478}/count.svg" alt="Boniphace-md :: Visitor's Count"/></p>
+<p align="center"><img src="https://profile-counter.glitch.me/{Aiden149}/count.svg" alt="AIDEN_TECH:: Visitor's Count"/></p>
 
 ---
 
@@ -36,7 +36,7 @@
 
 </p>
  
-- <a href="https://github.com/boniphace478/BONIPHACE-MD/fork"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/FORK THIS REPO-h?color=pink&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
+- <a href="https://github.com/Aiden149/AIDEN_TECH/fork"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/FORK THIS REPO-h?color=pink&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
@@ -68,10 +68,10 @@
 
 </p>
  
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+<img src="https://files.catbox.moe/sb8niw.jpg" height="90" width="100%">
 
 
-  - <a align="center"><a href="https://dashboard.heroku.com/new?template=https://github.com/boniphace478/BONIPHACE-XMD-1"> <img src="https://img.shields.io/badge/DEPLOY%20NOW-pink?style=for-the-badge&logo=heroku" width="220" height="38.45"/></a></p>
+  - <a align="center"><a href="https://dashboard.heroku.com/new?template=https://github.com/Aiden149/AIDEN_TECH"> <img src="https://img.shields.io/badge/DEPLOY%20NOW-pink?style=for-the-badge&logo=heroku" width="220" height="38.45"/></a></p>
  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𓅓+𝑆𝐴𝐹𝐸+𝑇𝑂+𝐻𝐸𝑅𝑂𝐾𝑈+𓅓)](https://git.io/typing-svg)
 
 
@@ -90,27 +90,27 @@
 
 **OWNER**
 <p align="centre">
-  <a href="https://wa.me/message/HVPSEJDVDNAEG1">
+  <a href="https://wa.me/255750363194">
     <img align="left" alt="SIEGRIN | Whastapp" width="86px" src="https://raw.githubusercontent.com/PikaBotz/My_Personal_Space/main/Images/AnyaBot_pics/Anya_v2/Whatsapp.svg" />
 
 
 **𝗖𝗵𝗮𝗻𝗻𝗲𝗹**
 <p align="centre">
-  <a href="https://whatsapp.com/channel/0029VaiMm7d4yltT51HS1T1G">
+  <a href="https://whatsapp.com/channel/0029VaefFGr77qVUzcS6ad0t">
     <img align="left" alt="SIEGRIN | Whastapp" width="86px" src="https://raw.githubusercontent.com/PikaBotz/My_Personal_Space/main/Images/AnyaBot_pics/Anya_v2/Whatsapp.svg" />
 
    ###
 
 CONTACT DEVELOPER ON WHATSAPP 
 
-<a href="https://wa.me/message/HVPSEJDVDNAEG1" target="_blank">
+<a href="https://wa.me/255750363194" target="_blank">
     <img alt="whatsapp Group" src="https://img.shields.io/badge/boniphace tech contact -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 
   
  
-<a href="https://whatsapp.com/channel/0029VaiMm7d4yltT51HS1T1G" target="_blank">
-    <img alt="whatsapp Group" src="https://img.shields.io/badge/ BONIPHACE_TECH  CHANNEL -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="https://whatsapp.com/channel/0029VaefFGr77qVUzcS6ad0t" target="_blank">
+    <img alt="whatsapp Group" src="https://img.shields.io/badge/ AIDEN_TECH CHANNEL -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
  
 
 ## License
@@ -118,12 +118,12 @@ CONTACT DEVELOPER ON WHATSAPP
 The WhatsApp Bot BONIPHACE-MD is released under the [MIT License](https://opensource.org/licenses/MIT).
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-🌟 THANK YOU FOR CHOOSING BONIPHACE-MD 🌟
+🌟 THANK YOU FOR CHOOSING AIDEN_TECH 🌟
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 ## DEVELOPERS :
 
-- [**BONIPHACE TECH**](https://github.com/boniphace478)
+- [**FREDRICK**](https://github.com/Aiden149)
 - [**Developers YT**](https://youtube.com/@anthonyboniphace?si=86VHGM7BZ4Q_OQYO)
 - [**HANSTZ TECH**](https://github.com/HANSTZ3)
  <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
